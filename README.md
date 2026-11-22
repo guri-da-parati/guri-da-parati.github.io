@@ -1,0 +1,1 @@
+# guri-da-parati.github.io
